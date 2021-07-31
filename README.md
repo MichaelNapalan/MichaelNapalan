@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MichaelNapalan
-- 👀 I’m interested in solving problems and adding value by helping outhers.
+- 👀 I’m interested in solving problems and adding value by helping out others.
 - 🌱 I’m currently learning ... TBD
 - 💞️ I’m looking to collaborate on ... TBD
 - 📫 How to reach me ... email is best
